@@ -1,0 +1,1 @@
+# Analise_Amer3.SA
